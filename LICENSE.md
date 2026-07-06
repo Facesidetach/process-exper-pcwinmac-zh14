@@ -1,4 +1,4 @@
-# 
+# Exclusif Process Explorer modules complémentaires pour Mac OS | Ultime Process Explorer modules complémentaires pour PC Windows. Avec analyse approfondie et enregistrement de macros — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
